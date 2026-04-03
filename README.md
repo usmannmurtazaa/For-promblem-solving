@@ -1,3 +1,3 @@
 # For-promblem-solving
 
-do it fast
+do it fast it
